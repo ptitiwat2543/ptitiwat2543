@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @ptitiwat2543
+- 👀 I’m interested in programming
+- 🌱 I’m currently learning everything programming
+- 📫 How to reach me p.titiwat2543@gmail.com
